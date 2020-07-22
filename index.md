@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. I plan to introduce you to my new page. It will be fun, let us do it together!
